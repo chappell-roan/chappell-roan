@@ -12,11 +12,11 @@
 main account
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[wolfbrothers](github.com/wolfbrothers)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[wolfbrothers](github.com/wolfbrothers)
 
 <p align="center">
 socials/other accounts
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [prns.cc](https://pronouns.cc/@argus) [rentry](https://rentry.co/rockstars)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [prns.cc](https://pronouns.cc/@argus) [rentry](https://rentry.co/rockstars)
 ㅤㅤㅤ
