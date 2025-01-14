@@ -11,16 +11,11 @@
 <p align="center">
 main account
 </p>
-<p align="center">
-wolfbrothers
-</p>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[wolfbrothers](https://github.com/wolfbrothers)
 
 <p align="center">
 socials/other accounts
 </p>
-<p align="center">
- prns.cc rentry strawpage
-</p>
-<p align="center">
-(still struggling to figure out how to put links here so for now there's nothing;-;)
-</p>
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [prns.cc](https://pronouns.cc/@argus) [rentry](https://rentry.co/rockstars)
+ㅤㅤㅤ
