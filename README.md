@@ -8,7 +8,7 @@
 main account
 </p>
 <p align="center">
-// wolfbrothers
+wolfbrothers
 </p>
 
 
@@ -19,5 +19,5 @@ socials/other accounts
  prns.cc . rentry . strawpage
 </p>
 <p align="center">
-*(still struggling to figure out how to put links here so for now there's nothing;-;)*
+(still struggling to figure out how to put links here so for now there's nothing;-;)
 </p>
