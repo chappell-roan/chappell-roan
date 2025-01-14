@@ -16,7 +16,7 @@ wolfbrothers
 socials/other accounts
 </p>
 <p align="center">
- prns.cc . rentry . strawpage
+ prns.cc rentry strawpage
 </p>
 <p align="center">
 (still struggling to figure out how to put links here so for now there's nothing;-;)
