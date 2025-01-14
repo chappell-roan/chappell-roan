@@ -5,14 +5,10 @@
  ㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ   𝖺𝗇𝖽 𝘁𝘄𝗶𝗰𝗲 𝖺𝗌 𝗽𝗿𝗲𝘁𝘁𝘆 
 
 <p align="center">
-    <img width="100" src="https://komarev.com/ghpvc/?username=chappell-roan&hi=PROFILE+VIEWS" alt="">
-</p>
-
-<p align="center">
 main account
 </p>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[wolfbrothers](github.com/wolfbrothers)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[wolfbrothers](github.com/wolfbrothers)
 
 <p align="center">
 socials/other accounts
